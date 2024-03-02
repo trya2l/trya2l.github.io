@@ -7,7 +7,7 @@ categories: introduction
 
 Well.
 
-I'm not an experimented nor passionated writer (especially in english), but well, I need to start somewhere after all.
+I'm not an experimented nor passionated writer (especially in english) but I need to start somewhere after all.
 
 This one won't be really well organized (and I may delete it sooner or later). We will see.
 
